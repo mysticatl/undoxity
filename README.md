@@ -13,7 +13,7 @@ THIS GITHUB WILL BE UPDATED FROM TIME TO TIME ABOUT MY EXPERIENCE IN THE BLACK H
 - ☞ [Instagram Alt](https://instagram.com/restinundoxity)
 - ☞ [Discord - zambieassasin#2411]
 - ☞ [Skype - zambie63]
-- 
+
 ### things ive made my aliases known for ALL PROJECTS ARE INACTIVE AND OUTDATED(OLD GEN)
 - ☞ [Smack.rip - Operated with Co Ceo cash cow gmony and Co Ceo Hostile-Q 2K PAID CUSTOMERS]
 
@@ -28,6 +28,8 @@ THIS GITHUB WILL BE UPDATED FROM TIME TO TIME ABOUT MY EXPERIENCE IN THE BLACK H
 - ☞ [LigmaLogs.tk (now streetaddresslogger.feds.cf) - simple basic street address logger via browser location gpsd permissions]
 
 - ☞ [stresstest.cc - webstresser and first person to deobfuscate and reverse engineer and crack and release console sniffer v3 and released it and winforms Visual Basic made by a customer DDoS Panel a phone app made with Electron a discord bot channel and role specific multi tool coded in nodejs and a voice automated multi tool coded in python and made an app on android using tasker with built in authentication system & plenty more that i even transfered as a switch from domain stresstest.cc to smack.rip to slam.wtf]
+
+PLENTY OF OTHER PROJECTS JUST NOT LISTED
 
 ### About me
 I have been around the ddosing community since skype days 2013 after i turned 12 and got my very first electronic i was brought up by some of the forever known big aliases that made the things 75% of the community stumbles across I am currently inactive from the scene and don't plan on returning any time soon. Most of the OGs have left the scene, gotten arrested and/or still is arrested in prison, and/or are too private because we have true power that has hit dstats with terrabytes. I never talk about literally everything i have ever done and have even lost some pretty private stuff along the years but trust me on everything when i say there are plenty of people bigger and more intellegant than me and you combined and always will be some are even in hiding because the FBI themselves have cracked down and the same reason i quit the scene is because I was really good homies with tons of really smart OGs that have gotten locked up or in hiding or whatever and out of all my time in the community its always been the same thing toxic no life havin fakes who claim they code and do all this big stuff but are script kiddies and use other peoples power even and flex but won't even try to understand how it works or anything at all behind it
