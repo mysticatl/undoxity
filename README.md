@@ -50,6 +50,9 @@ Magic
 Paradise
 Skype zambie63
 Xbox undoxity
+MYSTICATL
+
+SOME ALIASES NOT LISTED FOR SAFETY REASONS
 
 #Associates ive made known and shared everything with and did everything with on playstaion because they were the homies (NOT TO SNITCH OUT ALIASES)
 #THESE ALIASES ARE OLD ALIASES THAT I HAVE MADE KNOWN THAT ARE OUTDATED OF MY FRIENDS ON PLAYSTATION DURING MY COMMUNITY EXPERIENCE
