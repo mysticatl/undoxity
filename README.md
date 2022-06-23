@@ -1,19 +1,24 @@
-# Hello! 
+# Hello! MAKING THIS GITHUB WITH THE ADVISORIES AND THE HONEST REAL TRUTH WILL RUIN MY REP BUT OH WELL EVERYTHING POSTED ON THIS GITHUB IS TO KEEP EVERYONE ON THIS EARTH SAFE AND THIS IS PURELY EDUCATIONAL LAW ENFORCEMENT I HAVE ZERO PROBLEMS WITH TAKING EVERYTHING I POST DOWN KEEPING TO MYSELF AND I PROMISE TO LEAVE THE SCENE FOR GOOD IF NO ACTIONS ARE BROUGHT UPON ME AND IF YOU STILL FEEL THE NEED TO MAKE AN ARREST I PROMISE ON MY SOUL I WILL MAKE A BIG FLEXING OUTBURST THAT WILL MAKE BIG HUGE NEWS AND WILL PUT YOU AND ME AND PARTICIPATING OTHERS AT RISK UNTIL I LEAVE THIS EARTH OR GET A LIFE SENTENCE BECAUSE THAT IS TRULY PETTY TO TAKE ACTIONS UPON SOMEONE WHO IS OUT OF THE BLACK HAT COMMUNITY DOING THE RIGHT THINGS AND LEAVING THIS EARTH WITH NOTHING BUT POSITIVE THINGS TO SAY ABOUT AND I PROMISE ON MY SOUL IF I NEVER CHANGED TO BE GOOD AND POSITIVE YOU WOULDNT OF EVEN KNOWN ABOUT ME I COULD CARE LESS ABOUT CLOUT TERRORISM OR ANYTHING I DID THINGS FOR FUN AND TO BETTER MY FUTURE
+
+
+# THIS GITHUB WILL BE UPDATED FROM TIME TO TIME ABOUT MY EXPERIENCE IN THE BLACK HAT HACKING COMMUNITY AND IS IN FACT OUTDATED BY YEARS I DO NOT CONDONE AND I HIGHLY RECOMMEND TO STAY FAR AWAY AS POSSIBLE FROM FUCKING OVER YOUR LIFE JUST OVER A FEW SECONDS TO MINUTES OF FUN OR JUST TO FLEX AND I AM GOING TO POST THINGS I AM INTERESTED IN TO MAKE OTHERS AWARE OF THE BLACK HAT COMMUNITY WITHOUT LEAKING FILES ALIASES AND OTHER DATA THAT WILL DISRUPT THE BLACK HAT COMMUNITY TOO MANY PEOPLE HAVE MY ALIAS FOR ABSOLUTE STUPID REASONS AND I MADE THIS TO PROVE ONCE AND FOR ALL HOW BIG OF AN OG I WAS
+
 ## My name is undoxity and I am a Developer that focuses on different projects I am interested in i prefer coding things from scratch and building onto them over the period of time i am interested in them
 
 ### Links
 - ☞ [GitHub](https://github.com/undoxity)
 - ☞ [Instagram Main](https://instagram.com/nickgotsick)
 - ☞ [Instagram Alt](https://instagram.com/restinundoxity)
+- ☞ [Discord - zambieassasin#2411]
+- ☞ [Skype - zambie63]
 - 
 ### About me
 I have been around the ddosing community since skype days 2013 after i turned 12 and got my very first electronic i was brought up by some of the forever known big aliases that made the things 75% of the community stumbles across I am currently inactive from the scene and don't plan on returning any time soon. Most of the OGs have left the scene, gotten arrested and/or still is arrested in prison, and/or are too private because we have true power that has hit dstats with terrabytes. I never talk about literally everything i have ever done and have even lost some pretty private stuff along the years but trust me on everything when i say there are plenty of people bigger and more intellegant than me and you combined and always will be some are even in hiding because the FBI themselves have cracked down and the same reason i quit the scene is because I was really good homies with tons of really smart OGs that have gotten locked up or in hiding or whatever and out of all my time in the community its always been the same thing toxic no life havin fakes who claim they code and do all this big stuff but are script kiddies and use other peoples power even and flex but won't even try to understand how it works or anything at all behind it
 
-Known Aliases below
+### Known Aliases below
+FatGaySheep (Support from stress.wtf)
 PSN undoxity
 PSN MaddBadd
-PSN zambieassasin
-PSN Corvo365
 PSN shockerworrier1
 PSN Bootroullette
 PSN Bootroulette
@@ -24,8 +29,10 @@ Narcotics
 Magic
 Paradise
 Skype zambie63
+
 ### DISCLAIMER OUTDATED INFORMATION
 Projects i have worked on in the past
+(COMING SOON STAY TUNED)
 
 ### DISCLAIMER
 ### OUT OF ALL MY YEARS OF BEING SILENT ABOUT WHAT I KNOW AND EVEN SILENT ABOUT MY LIFE ONE THING I CAN SAY FOR EVERYONE 
