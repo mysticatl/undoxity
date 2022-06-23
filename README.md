@@ -15,9 +15,11 @@ THIS GITHUB WILL BE UPDATED FROM TIME TO TIME ABOUT MY EXPERIENCE IN THE BLACK H
 - ☞ [Skype - zambie63]
 - 
 ### things ive made my aliases known for ALL PROJECTS ARE INACTIVE AND OUTDATED(OLD GEN)
-- ☞ [Smack.rip - Operated with Co Ceo cash cow gmony and Co Ceo Hostile-Q]
+- ☞ [Smack.rip - Operated with Co Ceo cash cow gmony and Co Ceo Hostile-Q 2K PAID CUSTOMERS]
 
 - ☞ [nattype.xyz - private for the homies only]
+
+☞ [TROVE 2017 DDOS ATTACK THAT SHUT DOWN THE ENTIRE GAME ON PLAYSTATION FOR THE ENTIRE NORTH AMERICA REGION AND MADE MYSELF KNOWN BY THE TOP LEADERBOAD PAY TO WIN PLAYERS AND NON PAY TO WIN HELD PEOPLE OFFLINE SWATTED THEM MADE THEM CALL THE LOCAL POLICE WHEN THEY THREATENED TO SNITCH ON ME SO I CAN RECORD THE POLICE TELLING THEM TO CONTACT THEIR ISP THERE IS NOTHING THEY CAN DO AND TELLING THEM DDOS IS IMPOSSIBLE MAKING PLAYERS GIVE FULL INVETORIES OF PAY TO WIN ITEMS AND NON PAY TO WIN ITEMS STOLE TOP PLAYERS ACCOUNTS JUST TO GET BETTER AT THE GAME WITHOUT PLAYING AND SO MUCH MORE UNDER THE ALIASES corvo365 and zambie or zambieassasin - https://twitter.com/trovegame/status/885249000034758660 - https://twitter.com/trovegame/status/940653102067265540?lang=en - etc]
 
 - ☞ [slam.wtf - new Co CEO cash cow i used him for paying for the servers in exchange for true raw power ending up screwing me over telling me to fire my homie admins that he will take care of everything because the admins were leaking my files my spoof hosting and way more]
 
