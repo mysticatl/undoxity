@@ -8,11 +8,11 @@ THIS GITHUB WILL BE UPDATED FROM TIME TO TIME ABOUT MY EXPERIENCE IN THE BLACK H
 ## My name is undoxity and I am a full stack multi language 21 year old Developer ex Black Hat Grey Hat that has many years of experience and used those years to focus on different projects I am interested in i prefer coding things from scratch and building onto them over the period of time i am interested in them and the only thing i have to say is my homie mezy is 100% right about what i posted below you kids need to calm tf down before law enforcement catches up to you
 
 ### Links
-- ☞ [GitHub](https://github.com/undoxity)
 - ☞ [Instagram Main](https://instagram.com/nickgotsick)
 - ☞ [Instagram Alt](https://instagram.com/restinundoxity)
 - ☞ [Discord - zambieassasin#2411]
 - ☞ [Skype - zambie63]
+- ☞ [Pastebin](https://pastebin.com/u/mysticatl)
 
 ### things ive made my aliases known for ALL PROJECTS ARE INACTIVE AND OUTDATED(OLD GEN)
 - ☞ [Smack.rip - Operated with Co Ceo cash cow gmony and Co Ceo Hostile-Q 2K PAID CUSTOMERS]
