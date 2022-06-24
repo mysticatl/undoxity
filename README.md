@@ -13,6 +13,10 @@ MAKING THIS GITHUB WITH THE ADVISORIES AND THE HONEST REAL TRUTH WILL RUIN MY RE
 
 - ☞ [nattype.xyz - private for the homies only]
 
+- ☞ [mnps.org & ena.com & 96.5.0.36 96.4.0.36 DNS DDoS attack that cancelled state required once a year TCAP testing for 9 school districts 144 schools that got me expelled from stratford high school in 2019 but i did egenuity until i set myself a half of a credit away from getting my diploma]
+
+- ☞ [changing my grades on gradespeed in 2017 causing me to get expelled from McGavock High School even after sugaring a cop cars gas tank]
+
 ☞ [TROVE 2017 DDOS ATTACK THAT SHUT DOWN THE ENTIRE GAME ON PLAYSTATION FOR THE ENTIRE NORTH AMERICA REGION AND MADE MYSELF KNOWN BY THE TOP LEADERBOAD PAY TO WIN PLAYERS AND NON PAY TO WIN HELD PEOPLE OFFLINE SWATTED THEM MADE THEM CALL THE LOCAL POLICE WHEN THEY THREATENED TO SNITCH ON ME SO I CAN RECORD THE POLICE TELLING THEM TO CONTACT THEIR ISP THERE IS NOTHING THEY CAN DO AND TELLING THEM DDOS IS IMPOSSIBLE MAKING PLAYERS GIVE FULL INVETORIES OF PAY TO WIN ITEMS AND NON PAY TO WIN ITEMS STOLE TOP PLAYERS ACCOUNTS JUST TO GET BETTER AT THE GAME WITHOUT PLAYING AND SO MUCH MORE UNDER THE ALIASES corvo365 and zambie or zambieassasin - https://twitter.com/trovegame/status/885249000034758660 - https://twitter.com/trovegame/status/940653102067265540?lang=en - etc]
 
 - ☞ [slam.wtf - new Co CEO cash cow i used him for paying for the servers in exchange for true raw power ending up screwing me over telling me to fire my homie admins that he will take care of everything because the admins were leaking my files my spoof hosting and way more]
