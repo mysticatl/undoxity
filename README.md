@@ -6,7 +6,6 @@ MAKING THIS GITHUB WITH THE ADVISORIES AND THE HONEST REAL TRUTH WILL RUIN MY RE
 - ☞ [Instagram Alt](https://instagram.com/restinundoxity)
 - ☞ [Discord - zambieassasin#2411]
 - ☞ [Skype - zambie63]
-- ☞ [Pastebin](https://pastebin.com/u/mysticatl)
 
 ### things ive made my aliases known for ALL PROJECTS ARE INACTIVE AND OUTDATED(OLD GEN)
 - ☞ [Smack.rip - Operated with Co Ceo cash cow gmony and Co Ceo Hostile-Q 2K PAID CUSTOMERS]
