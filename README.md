@@ -8,6 +8,8 @@ MAKING THIS GITHUB WITH THE ADVISORIES AND THE HONEST REAL TRUTH WILL RUIN MY RE
 - ☞ [Skype - zambie63]
 
 ### things ive made my aliases known for ALL PROJECTS ARE INACTIVE AND OUTDATED(OLD GEN)
+- ☞  swatting, doxing, cracking, ratting, phishing, coding, ddosing, credit card fraud, extortion, sim swapping, and more
+
 - ☞ [Smack.rip - Operated with Co Ceo cash cow gmony and Co Ceo Hostile-Q 2K PAID CUSTOMERS]
 
 - ☞ [nattype.xyz - private for the homies only]
